@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @csoki111
+- 👀 I’m interested in friday night funkin hard mods and minecraft updates
+- 🌱 I’m currently learning school
+- 📫 Reach me on discord (csoki111) 
+- ⚡ Fun fact: im hun
